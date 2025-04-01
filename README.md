@@ -3,6 +3,7 @@
 
 
 
+
 # Blue-Lock-Rivals-Script
 🔥 Dominate Blue Lock: Rivals with this powerful Roblox script! Features auto goal-scoring, speed boost, no cooldowns &amp; anti-ban protection. 🏆 Download now &amp; become the ultimate striker! ⚽💥 #Roblox #BlueLock #Script
 
